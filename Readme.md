@@ -1,0 +1,2 @@
+Let's start complex backend project
+[model link] ->https://www.youtube.com/redirect?event=video_description&redir_token=QUFFLUhqbHZhQ016eFFLQmVVRktfU2c1U2h3d1gyTUNRZ3xBQ3Jtc0ttN3ZRVE51QWMtUlFURXFKbDBYelNOcDhIYjB3Y1dJY1p6OTJzaDlpM1Yta1J0cFo2bVNBV3FRbTJraGpvdnRfbVNCTTYyZXN0Q1VraUFlNEdPSVBqcFZFMTdVOGJrdWduZzBkZ0lYQ2swTGJMdk9pSQ&q=https%3A%2F%2Fapp.eraser.io%2Fworkspace%2FYtPqZ1VogxGy1jzIDkzj%3Forigin%3Dshare&v=9B4CvtzXRpc
